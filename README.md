@@ -2,7 +2,7 @@
 **evan/HABIT**<br>
 8teen, he/him <br>
 
-this is an alt, [follow my main](https://github.com/j777ckpot)ㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤ ㅤ <sub>(*or don't, i don't care*)<sub>  <br>
+this is an alt, [follow my main](https://github.com/j777ckpot)ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<sub>(*or don't, i don't care*)<sub>  <br>
 
 <img src="https://files.catbox.moe/4nyv1p.jpg" width="500" height="~" alt="Image"/> <br>
 
