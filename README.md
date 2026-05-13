@@ -1,8 +1,9 @@
 ㅤ<br>
-**evan/HABIT**<br>
-8teen, he/him <br>
+**evan/HABIT**ㅤ8teen, he/him <br>
 
-this is an alt, [follow my main](https://github.com/j777ckpot)ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<sub>(*or don't, i don't care*)<sub>  <br>
+<sub>this is an alt account i link to my AFK skins - if you're here, i'm (probably) not looking at pony dot town<sub> <br>
+
+[follow my main](https://github.com/j777ckpot)ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<sub>(*or don't, i don't care*)<sub>  <br>
 
 <img src="https://files.catbox.moe/4nyv1p.jpg" width="500" height="~" alt="Image"/> <br>
 
