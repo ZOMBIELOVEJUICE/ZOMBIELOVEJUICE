@@ -1,11 +1,11 @@
-ㅤ<br/>
-**evan/HABIT** <br/>
-ㅤ8teen,⠀he/him <br/>
+ㅤ<br>
+**evan/HABIT**<br>
+8teen, he/him <br>
 
-this is an alt, [follow main](https://github.com/j777ckpot) (*or don't, i don't care*) <br/>
+this is an alt, [follow my main](https://github.com/j777ckpot)ㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤ ㅤ <sub>(*or don't, i don't care*)<sub>  <br>
 
-<img src="https://files.catbox.moe/4nyv1p.jpg" width="500" height="~" alt="Image"/> <br/>
+<img src="https://files.catbox.moe/4nyv1p.jpg" width="500" height="~" alt="Image"/> <br>
 
-i <3 these guys with all of my zombie guts (that's a *lot* of guts): <br/>
-[@VlSCARTE](https://github.com/VlSCARTE) ㅤ [@RUST-010](https://github.com/RUST-010) ㅤ [@EverymanHYBRIDJ](https://github.com/EverymanHYBRIDJ) <br/>
-ㅤ<br/>
+i <3 these guys with all my zombie guts (that's a *lot* of guts): <br>
+<sub> [@VlSCARTE](https://github.com/VlSCARTE)ㅤㅤ[@RUST-010](https://github.com/RUST-010)ㅤㅤ[@EverymanHYBRIDJ](https://github.com/EverymanHYBRIDJ) <sub> <br>
+ㅤ<br>
