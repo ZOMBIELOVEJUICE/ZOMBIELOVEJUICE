@@ -1,11 +1,10 @@
 ㅤ<br>
-**evan / HABIT**ㅤ⎯⎯ㅤ8teen, he/him <br>
-**if you're here to sign/follow something, [head over to my main](https://github.com/j777ckpot). all that fun stuff can be found there.**
-
-this is an alt i link to my afk skins; if you're here, i'm (probably) not looking at pony dot town <br>
-
-<img src="https://files.catbox.moe/4nyv1p.jpg" width="500" height="~" alt="banner"/> <br>
-
-i 🫀 these guys with all my zombie guts (that's a *lot* of guts): <br>
-<sup> [@VlSCARTE](https://github.com/VlSCARTE)ㅤㅤ[@RUST-010](https://github.com/RUST-010)ㅤㅤ[@EverymanHYBRIDJ](https://github.com/EverymanHYBRIDJ) </sup> <br>
+**EVAN**ㅤ<sub>OR</sub>ㅤ**HABIT**ㅤ<sup>+ OTHER</sup><br>
+⎯⎯⠀8teenㅤhe/himㅤㅤㅤ[ONE](https://github.com/VlSCARTE)ㅤ[TWO](https://github.com/RUST-010)ㅤ[THREE](https://github.com/EverymanHYBRIDJ)<br>
+ㅤ<br>
+<img src="https://files.catbox.moe/4197nl.png" width="300" height="~" alt="banner"/>ㅤ
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=STIX+Two+Text&size=15&duration=3500&pause=100&color=64504A&multiline=true&repeat=false&width=500&height=230&lines=well%E3%85%A4%5BREDACTED%5D%2C%E3%85%A4i+know+you+said;that+you'd+take+me+any+way+i+came+or+went;%E3%85%A4;but+i'll+push+you+from+my+brain;see%2C+you're+gentle%2C+baby;i+couldn't+stay%2C+i'd+only+bring+you+pain;%E3%85%A4;i+was+your+starry-eyed+lover+and+the+one+that+you+saw;i+was+your+hurricane+rider+and+the+one+that+you'd+call;we+were+just+two+moonshiners+on+the+cusp+of+a+breath;and+i've+been+burning+for+you%2C+baby%2C+since+the+minute+i+left)](https://git.io/typing-svg)<br>
+ㅤ<br>
+**THIS IS AN ALT ACCOUNT**,ㅤif you're here to sign/follow something, <br>
+**[CHECK OUT MY MAIN](https://github.com/j777ckpot)** ㅤ⎯ㅤ all that fun stuff can be found there. <br>
 ㅤ<br>
