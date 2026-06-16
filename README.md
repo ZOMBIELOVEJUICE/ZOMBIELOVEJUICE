@@ -1,6 +1,6 @@
 ㅤ<br>
 **evan / HABIT**ㅤ⎯⎯ㅤ8teen, he/him <br>
-**if you're here to sign/follow something, [head over to my main](https://github.com/j777ckpot). all of that fun stuff can be found there.**
+**if you're here to sign/follow something, [head over to my main](https://github.com/j777ckpot). all that fun stuff can be found there.**
 
 this is an alt i link to my afk skins; if you're here, i'm (probably) not looking at pony dot town <br>
 
